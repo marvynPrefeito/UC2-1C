@@ -17,5 +17,8 @@
  [Individual](https://trello.com/invite/b/GgbTL9p4/ATTI02b387e7001abe98c9cb7efa8fe7e584F169E1DA/tarefas)
 - Atividade 3:C++
  [Grupo](https://www.canva.com/design/DAGEjWwOWGA/Me6Xn4CuGQC1s3_PGDGzMw/edit?utm_content=DAGEjWwOWGA&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
+- Emprego dos sonhos
+[Individual](https://docs.google.com/document/d/1vWkOCOoPM4oZY-qA-0IGD0C6HUM89Nya2WRk-M5t5ug/edit?usp=sharing)
+
 
 
