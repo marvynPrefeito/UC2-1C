@@ -11,8 +11,13 @@
 
 # Tereza Oliveira
 
-Atividade 1: Trello 
-- [Grupo](link)
+Atividade 1: Trello Grupo
+- (https://trello.com/b/FNEcOPRI/trabalho-em-grupo)
+- Atividade 2: Trello individual
+- (https://trello.com/invite/b/GgbTL9p4/ATTI02b387e7001abe98c9cb7efa8fe7e584F169E1DA/tarefas)
+- Emprego dos sonhos
+- (https://docs.google.com/document/d/1vWkOCOoPM4oZY-qA-0IGD0C6HUM89Nya2WRk-M5t5ug/edit?usp=sharing)
+- 
 
 
 
